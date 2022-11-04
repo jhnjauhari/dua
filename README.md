@@ -1,1 +1,1 @@
-https://jhnjauhari.com/2
+https://jhnjauhari.com/dua
